@@ -1,8 +1,8 @@
 # hi there ૮ ˶ᵔ ᵕ ᵔ˶ ა
 
-hi ! i'm mimi · she/her ⪩⪨
+⪩⪨
 
-❀ information systems student  
+❀ infosys student  
 ✿ building cozy things on the internet  
 ❀ learning web dev one project at a time
 
